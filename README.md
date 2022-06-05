@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on modern IT-company
 - 📫 How to reach me 
 -   email - romanbogdan147@gmail.com
--   phone number - +375295238458 (telegramm,viber)
+-   phone number - +375295238458 (telegram,viber)
 -   discord - роман147(@roman847)
 
 <!---
